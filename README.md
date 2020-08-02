@@ -1,2 +1,2 @@
 # About
-Give your friends this link to rickroll them; https://rick-roll-ed.github.io/
+Give your friends these links to rickroll them; https://rick-roll-ed.github.io/, https://curiouscat.club/6MAT3E.mp3, https://bit.ly/newmusic-mp3
